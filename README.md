@@ -7,4 +7,4 @@ _oi_
 
 _sou estudante_ 💋
 
-![](https://media1.tenor.com/m/MiY3bnaKY0QAAAAC/bom-dia.gif)
+![](https://media1.tenor.com/m/rrIRbG7JkDgAAAAd/regina-regina-george.gif)
