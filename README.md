@@ -7,4 +7,4 @@ _oi_
 
 _sou estudante_ 💋
 
-![](https://media.tenor.com/n2i-kJhfSRQAAAAi/hello-kitty.gif)
+![](https://media1.tenor.com/m/MiY3bnaKY0QAAAAC/bom-dia.gif)
